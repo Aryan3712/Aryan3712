@@ -1,1 +1,1 @@
-Code unites us ~ Aryan Walia
+Code unites us
